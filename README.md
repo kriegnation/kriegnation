@@ -1,5 +1,5 @@
 ## ![IMG_4926](https://github.com/user-attachments/assets/a10d2f3e-39af-49b5-98b9-b2b707267416)
-
+15 ; cis Gender Male ( wow ) ;  ZD Enjoyer ; I don’t care if TCC members interact to be honest, I'm chill. 
 
 <!--
 **kriegnation/kriegnation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
